@@ -137,8 +137,9 @@ Ways to contribute from afar - this section lists donation opportunites, global 
 - ~~The Hague [Protest on December 20th, at 11:00 at the Indian Embassy]~~
 - ~~Amsterdam [Protest on December 21th, at 15:00 at Dam Square]~~
 - ~~Groningen [Protest on December 21th, at 10:00 at the University Academy Building]~~
-- The Hague [Protest in front of the ICJ on December 30, 11am](https://www.facebook.com/events/600288914122394/) 
-
+- ~~The Hague [Protest in front of the ICJ on December 30, 11am](https://www.facebook.com/events/600288914122394/)~~
+- Amsterdam [Protest on 12th of January, at 13:00 at Dam Square] (https://facebook.com/events/s/indians-against-caa-dam-square/2433298980258173/?ti=wa)
+ 
 ## New Zealand
 - ~~Auckland [Protest March on 21 December at Aotea Square at 12:00](https://twitter.com/drsapna/status/1207229471666819073)~~
 
